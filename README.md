@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlejoMiceli04
 - 👀 I’m interested in ... unturned
-- 🌱 I’m currently learning ... preogramacion para desarrollar unturned 2
+- 🌱 I’m currently learning ... programacion para desarrollar unturned 2
 - 💞️ I’m looking to collaborate on ... unturned
 - 📫 How to reach me ... en servidores de unturned
 
